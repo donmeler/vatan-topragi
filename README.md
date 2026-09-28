@@ -5,6 +5,8 @@ Bu sayfadaki bilgi, teyide muhtaçtır.
 Gecekonduluculuğu, iç/esas devletin çıkardığı ve körüklediği düşünülür.
 
 İstanbul, şehirlerimiz tekellerin eline düşmesin diye. Türk'ün toprağı/vatanı, Türk'e nasip olabilsin diye.
+Anadolu köylüsü, kendi memleketinde sokakta yürüyebilsin; saflığı, kılık kıyafeti yüzünden aşağılanmasın diye.
+
 
 Büyükada'ya gittiniz mi? Başka memleket gibi. Size şöyle bir bakıyorlar, ama hiç endişeleri yok. Her taraf tutulu çünkü, niye tasalansın. Birbirlerinden başkasına da satmıyorlar. Ama kimselerin ruhu duymuyor.
 Adalarda gecekondu yapmanın günlük/olağan akış bakımından bazı zorlukları var. İstanbul'daki diğer adaların da benzer durumda olduğu söyleniyor — ben diğerlerine gitmedim.
